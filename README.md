@@ -1,2 +1,2 @@
-# VozzyTerminal.github.io
+# Nintendo 64 Games
 KartikIsGay
